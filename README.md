@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @wolfecrax
-- 👀 I’m interested in milfs
-- 🌱 I’m currently learning python
+- 👋 Hi, I’m @wolfe
+- 👀 I’m interested in: milfs
+- 🌱 I’m currently learning: python
 - 📫 How to reach me: Discord @waxgod
 - 😄 Pronouns: ger
 
